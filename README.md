@@ -1,0 +1,2 @@
+# neverstop
+always find knowledge
